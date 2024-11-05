@@ -1,5 +1,5 @@
 👋 Hi, I’m @jimenaromero22
-👀 I’m interested in IT, cybersecurity, and cloud engineering. Currently exploring Japanese, French and English language for future career opportunities around the world.
+👀 I’m interested in IT, cybersecurity, and cloud engineering.
 🌱 I’m currently learning cybersecurity fundamentals, working towards becoming a certified cloud engineer and cybersecurity analyst.
 💞️ I’m looking to collaborate on international IT projects, especially those focused on cybersecurity or cloud solutions.
 📫 How to reach me: jimenaromerom18@gmail.com
